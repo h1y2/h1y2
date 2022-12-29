@@ -1,7 +1,8 @@
 I like to use some kinds of ways to make some viruses and crash the computer，haha！
 I also like C++,Html,Dos!
-Windows 11 is a stupid(maybe)!
-我是个华人，我爱中国！！！！(Only Chinese can understand)
+Windows 11 is a stupid(maybe)
+But I love cook!!!!!
+我爱中国！！！！(Only Chinese can understand)
 - 👋 Hi, I’m boy(you know that)...
 - 👀 I’m interested in kill my Windows11
 <!---
